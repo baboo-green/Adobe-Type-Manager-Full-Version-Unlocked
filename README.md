@@ -1,0 +1,1 @@
+# Adobe-Type-Manager-Full-Version-Unlocked
